@@ -1,1 +1,1 @@
-# kayitbotuv2
+﻿Selam Arkadaşlar İyi Kullanımlar
